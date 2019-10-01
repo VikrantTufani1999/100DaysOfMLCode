@@ -11,3 +11,6 @@ I ,[Shubham](https://github.com/shubham7298), am here to join the fun. I will al
 
 >I shaiesh (This profile is dead) also pledges to do the same.
 
+
+>I [Satya](https://github.com/satya9500) also pledges to do the same.
+
